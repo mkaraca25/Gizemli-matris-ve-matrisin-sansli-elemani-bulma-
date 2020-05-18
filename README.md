@@ -1,1 +1,1 @@
-# Gizemli-matris-ve-matrisin-ansl-eleman-
+# Gizemli-matris-ve-matrisin-sansli-elemani-
